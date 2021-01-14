@@ -1,2 +1,0 @@
-Mesmerizing
-Astonishing
